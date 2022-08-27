@@ -1,0 +1,2 @@
+# Minor-Project-On-Historical-Places-All-Over-The-World
+Hello Everyone! I am happy to share with you that I have completed my #1 task as part of the Verzoo internship under #smartknower internship program #august2022  . #GRIPAugust22 #tech #share  #3 task: Historical Paces All Over The World integreation IDE: Visual Studio Code LinkedIn profile:https://lnkd.in/dNAEtHmh Tech:HTML,CSS #css #htmlcss #internship #linkedin #html
